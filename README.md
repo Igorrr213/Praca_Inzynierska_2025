@@ -1,1 +1,1 @@
-# Praca_In-ynierska_2025
+# Praca_Inzynierska_2025
